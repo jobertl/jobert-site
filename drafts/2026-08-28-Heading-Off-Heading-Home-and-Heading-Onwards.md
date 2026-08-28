@@ -12,7 +12,7 @@ After almost six years of living there, I left Vancouver for what will likely be
 
 Since school doesn't start in Manchester until mid-September, my first stop for now is my home of Hong Kong, where I landed on the **25th** after skipping the **24th** almost entirely by crossing the International Date Line during my trans-Pacific flight. There, I’ll mainly be visiting family and indulging myself. I then headed to Macau on the **28th** to visit more family, where I’ll be staying for a few days before returning to Hong Kong.
 
-As a bit of an apology for a shorter entry this week, have some snapshots from Hong Kong and Macau. My personal favourite are the chips in monochrome packaging I found sitting in an arcade claw machine, their lack of colour a byproduct of Japan’s naphtha shortage due to the Iran war.
+As a bit of an apology for a shorter entry this week, have some snapshots from Hong Kong and Macau. My personal favourite are the chips in monochrome packaging I found sitting in an arcade claw machine, their lack of colour a byproduct of Japan’s naphtha shortage due to the Iran war. There’s also the Chinese version of Heated Rivalry I found in a bookstore, where it was apparently both a bestseller and had a ‘parental warning’ on it (could these two things be related, perhaps?). Canadian soft power at work, everyone.
 
 ## Reflections
 
