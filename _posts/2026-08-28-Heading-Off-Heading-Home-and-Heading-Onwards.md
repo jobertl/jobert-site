@@ -6,11 +6,18 @@ tags: update new reflection
 
 # Heading Off, Heading Home, and Heading Onwards
 
+**TL;DR:**
+- I left Vancouver
+- I returned to Hong Kong
+- I wrote a bit about my decision to head to grad school
+
+![Collage for 2026-08-28](/assets/images/2026-08-28.JPG)
+
 ## Life Update
 
-After almost six years of living there, I left Vancouver for what will likely be the last time in quite a while on the **23rd**. While I do have plenty of thoughts on my departure, I've already said most of them in previous posts, so you won't hear me talk much about it this week. That said, I'll try and include a **Reflection** about my decision to leave in this post to contextuatize things a bit.
+After almost six years of living there, I bid farewell to Vancouver for what will likely be the last time in quite a while on the **23rd**. While I do have plenty of thoughts on my departure, I've already said most of them in previous posts, so you won't hear me talk much about it this week. That said, I'll try and include a **Reflection** about my decision to leave in this post to contextuatize things a bit.
 
-Since school doesn't start in Manchester until mid-September, my first stop for now is my home of Hong Kong, where I landed on the **25th** after skipping the **24th** almost entirely by crossing the International Date Line during my trans-Pacific flight. There, I’ll mainly be visiting family and indulging myself. I then headed to Macau on the **28th** to visit more family, where I’ll be staying for a few days before returning to Hong Kong.
+Since school doesn't start in Manchester until mid-September, my first stop for now is my home of Hong Kong, where I landed on the **25th**. This was after skipping the **24th** almost entirely, which I accomplished by crossing the International Date Line during my trans-Pacific flight. I Hong Kong, I’ll mainly be visiting family and indulging myself, though I headed to Macau on the **28th** to visit more family, where I’ll be staying for a few days before returning to Hong Kong.
 
 As a bit of an apology for a shorter entry this week, have some snapshots from Hong Kong and Macau. My personal favourite are the chips in monochrome packaging I found sitting in an arcade claw machine, their lack of colour a byproduct of Japan’s naphtha shortage due to the Iran war. There’s also the Chinese version of Heated Rivalry I found in a bookstore, where it was apparently both a bestseller and had a ‘parental warning’ on it (could these two things be related, perhaps?). Canadian soft power at work, everyone.
 
