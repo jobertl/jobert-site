@@ -1,7 +1,7 @@
 ---
 title: "Heading Off, Heading Home, and Heading Onwards"
 date: 2026-08-28
-tags: update new reflection
+tags: update reflection
 ---
 
 # Heading Off, Heading Home, and Heading Onwards
