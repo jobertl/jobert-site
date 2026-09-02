@@ -16,6 +16,4 @@ Despite the film's main hook being Marcellus the octopus, an intelligent, snarky
 
 Grief and moving on are central themes throughout this movie, as both Tova and Cameron struggle to deal with the loss of their loved ones, all while trying to find something or someone else to fill the gaps they left behind. This all comes to a head during what I consider to be the movie’s most emotional moment, though the most I can say about it without going into spoiler territory is that it involves Marcellus. Combined with the scene’s context, Field’s acting as Tova was so true-to-life that I nearly forgot her co-star was a (CGI) octopus, and it won’t be an exchange I’ll forget anytime soon.
 
-Still, Remarkably Bright Creatures is ultimately a film with an optimistic outlook on life, which permeates throughout its narrative. Despite the rather heavy
-
-(themes of moving on, finding new hope, an extremely emotional moment)
+Still, Remarkably Bright Creatures is ultimately a film with an optimistic outlook on life, which permeates throughout its narrative. Despite the heavy subjects it touches on, there weren’t any moments where I felt unsettled or uncomfortable watching it. On the contrary, the warm and supportive atmosphere it created not only made Remarkably Bright Creatures really enjoyable to watch, but reinforces its themes of finding new hope in life even when all seems lost. After all, if an octopus can do it, why can’t us humans?
