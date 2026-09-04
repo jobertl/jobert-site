@@ -40,7 +40,7 @@ Still, Remarkably Bright Creatures is ultimately a film with an optimistic outlo
 
 ## Baked Pork Chop Rice Review
 
-![Cafe Neptune baked pork chop rice](/assets/images/BPCR_2026-09-04.jpeg)
+![Cafe Neptune baked pork chop rice aka BPCR_2026-09-04.jpeg](/assets/images/IMG_8672.jpeg)
 
 This week, I’ll be reviewing the baked pork chop rice from Macau’s Cafe Neptune, which I ate on the **29th**. While I usually order the similar yet uniquely Macanese dish of Atlantic baked rice whenever I’m in Macau, Cafe Neptune unfortunately didn’t have it on their menu.
 
