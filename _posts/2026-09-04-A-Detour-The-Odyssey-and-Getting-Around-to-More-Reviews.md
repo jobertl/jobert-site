@@ -1,30 +1,32 @@
 ---
-title: "Title"
+title: "A Detour, The Odyssey, and Getting Around to More Reviews"
 date: 2026-09-04
 tags: update review_baked new cinematheque
 ---
 
-# Title
+# A Detour, The Odyssey, and Getting Around to More Reviews
 
 **TL;DR:**
-- 
+- I made a detour to the Macau Comic Festival
+- I (finally) watched The Odyssey
+- I get around to posting film reviews
 
-![Collage for 2026-08-28](/assets/images/2026-08-28.JPG)
+![Collage for 2026-09-04](/assets/images/2026-09-04.JPG)
 
 ## New and Improved
-- Added **Cinematheque** section for movie/TV series review
+- Added **Cinematheque** section for reviewing movie/TV series
 
 ## Life Update
 
-I made one of the strangest detours of my life when I went to the Macau Comic Festival on the **30th**, seeing as it wasn’t on my agenda at all until I noticed some promotion for it the previous day. Compared to other similar events I attended in Hong Kong and Vancouver, this was easily the smallest scale, mainly due to Macau’s vastly smaller population. Still, it was around the same price as its Hong Kong counterparts, so along with me having sufficient free time in my schedule, going was a no-brainer. Along with some freebies I got from various booths, I also bought a set of Pokémon button badges, making this spur-of-the-moment trip surprisingly worthwhile.
+I made one of the strangest detours of my life when I went to the Macau Comic Festival on the **30th**, seeing as it wasn’t on my agenda at all until I noticed some promotion for it the previous day. Compared to other similar events I attended in Hong Kong and Vancouver, this was easily the smallest scale, mainly due to Macau’s vastly smaller population. Still, it was around the same price as its Hong Kong counterparts, so along with me having sufficient free time in my schedule, going was a no-brainer. Along with some freebies I got from various booths, I also bought several Pokémon button badges (out of the collection in the collage above), making this spur-of-the-moment trip surprisingly worthwhile.
 
-My other major destination of the day was the Silk Road exhibit at the MGM casino’s museum (which is currently in the running for the weirdest sequence of words I’ve written on this blog). While I was already aware of the topic’s historical and cultural context, seeing the associated artefacts (such as coins, statues, and pottery) in person really brought my existing understanding of the subject matter to life.
+My other major destination of the day was the Silk Road exhibit at the MGM casino’s museum (which is currently in the running for the weirdest sequence of words I’ve written on this blog). While I was already aware of the topic’s historical and cultural context, seeing the associated artefacts (such as coins, statues, and pottery) in person really brought my existing understanding of the subject matter to life. Unfortunately, all good things must come to an end, as I returned to Hong Kong on the **31st**.
 
-Unfortunately, all good things must come to an end, as I returned to Hong Kong on the **31st**.
+After putting it off for quite a while, I finally had the chance to watch Christopher Nolan’s The Odyssey in IMAX on **September 4th**. While it was certainly a well-crafted film, I won’t go into much detail here, as I plan on giving my thoughts about it in a future **Cinematheque** section.
 
 ## Cinematheque
 
-In this section, I'll be discussing films I watched lately (spoiler-free).
+In this section, I'll be discussing films and TV shows I watched lately (spoiler-free).
 
 As teased a couple of weeks ago, here's my thoughts on the film **Remarkably Bright Creatures**, directed by Olivia Newman and starring Sally Field, Lewis Pullman, and Alfred Molina, adapted from the book of the same name by Shelby Van Pelt (incidentally, the picture I'm using to represent this section features two copies of the book, one with an original cover and the other with the movie cover). The film centres around Tova (Field), a woman near retirement who works as a small-town aquarium janitor trying to navigate life after the death of her son. When struggling wannabe musician Cameron (Pullman) ends up in town following an accident, the two of them begin gradually bonding over the loss of their family members, aided by the aquarium's octopus Marcellus (Molina).
 
@@ -37,6 +39,8 @@ Grief and moving on are central themes throughout this movie, as both Tova and C
 Still, Remarkably Bright Creatures is ultimately a film with an optimistic outlook on life, which permeates throughout its narrative. Despite the heavy subjects it touches on, there weren’t any moments where I felt unsettled or uncomfortable watching it. On the contrary, the warm and supportive atmosphere it created not only made Remarkably Bright Creatures really enjoyable to watch, but reinforces its themes of finding new hope in life even when all seems lost. After all, if an octopus can do it, why can’t us humans?
 
 ## Baked Pork Chop Rice Review
+
+![Cafe Neptune baked pork chop rice](/assets/images/BPCR_2026-09-04.jpeg)
 
 This week, I’ll be reviewing the baked pork chop rice from Macau’s Cafe Neptune, which I ate on the **29th**. While I usually order the similar yet uniquely Macanese dish of Atlantic baked rice whenever I’m in Macau, Cafe Neptune unfortunately didn’t have it on their menu.
 
