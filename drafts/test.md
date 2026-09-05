@@ -4,6 +4,14 @@
 
 ## Cinematheque
 
+I’ll get this out of the way first: **The Odyssey** isn’t my favourite Christopher Nolan film (that honour goes to Interstellar). However, with how it interprets its source material of Homer’s millennia-old epic, along with the discussion said interpretation has generated, I’m more than willing to make the claim that **The Odyssey** is Nolan’s most culturally-relevant film since the Dark Knight trilogy.
+
+Since its original mythology has already been well-trod through a large number of adaptations, the summary I’ll provide of its plot here will just be to outline key details that’ll be relevant to my later points. Following the end of the Trojan War, its hero Odysseus (played by Matt Damon) seeks to return home
+
+(practical effects lend well to epic feeling, especially with how monsters actually looked unnerving, something hard to do these days, Nyongo and Page?, focus on cultural discourse)
+
+## Cinematheque
+
 In this section, I'll be discussing films I watched lately (spoiler-free).
 
 As teased a couple of weeks ago, here's my thoughts on the film **Remarkably Bright Creatures**, directed by Olivia Newman and starring Sally Field, Lewis Pullman, and Alfred Molina. The film centres around Tova (Field), a woman near retirement who works as a small-town aquarium janitor trying to navigate life after the death of her son. When struggling wannabe musician Cameron (Pullman) ends up in town following an accident, the two of them begin gradually bonding over the loss of their family members, aided by the aquarium's octopus Marcellus (Molina).
