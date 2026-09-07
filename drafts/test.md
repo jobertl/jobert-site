@@ -6,9 +6,11 @@
 
 I’ll get this out of the way first: **The Odyssey** isn’t my favourite Christopher Nolan film (that honour goes to Interstellar). However, with how it interprets its source material of Homer’s millennia-old epic, along with the discussion said interpretation has generated, I’m more than willing to make the claim that **The Odyssey** is Nolan’s most culturally-relevant film since the Dark Knight trilogy.
 
-Since its original mythology has already been well-trod through a large number of adaptations, the summary I’ll provide of its plot here will just be to outline key details that’ll be relevant to my later points. Following the end of the Trojan War, its hero Odysseus (played by Matt Damon) seeks to return home
+Since its original mythology has already been well-trod through a large number of adaptations, the summary I’ll provide of its plot here will just be to outline key details that’ll be relevant to my later points. Following the end of the Trojan War, its hero Odysseus (played by Matt Damon) seeks to return home to Ithaca with his surviving subordinates after 20 years, encountering various tribulations along the way. Meanwhile, his wife Penelope (played by Anne Hathaway) fends off potential suitors for her hand in marriage and Ithaca’s throne with the help of her son Telemachus (played by Tom Holland).
 
-(practical effects lend well to epic feeling, especially with how monsters actually looked unnerving, something hard to do these days, Nyongo and Page?, focus on cultural discourse)
+Despite the criticisms of its faded and unsaturated colour palette (which I wholeheartedly agree with), **The Odyssey** compensates for this ‘realism’ through its practical visual effects, which give the entire movie a genuinely epic feel. In particular, the monsters Polyphemus (the cyclops) and Scylla look as if
+
+(practical effects lend well to epic feeling, especially with how monsters actually looked unnerving, something hard to do these days, Nyongo and Page?, focus on cultural discourse, Sea Peoples, Bronze Age collapse)
 
 ## Cinematheque
 
