@@ -4,13 +4,15 @@
 
 ## Cinematheque
 
-I’ll get this out of the way first: **The Odyssey** isn’t my favourite Christopher Nolan film (that honour goes to Interstellar). However, with how it interprets its source material of Homer’s millennia-old epic, along with the discussion said interpretation has generated, I’m more than willing to make the claim that **The Odyssey** is Nolan’s most culturally-relevant film since the Dark Knight trilogy.
+I’ll get this out of the way first: **The Odyssey** isn’t my favourite Christopher Nolan film (that honour goes to Interstellar). However, with how it interprets its source material of Homer’s millennia-old epic, along with the discussion said interpretation has generated, I’m more than willing to make the claim that The Odyssey is Nolan’s most culturally-relevant film since the Dark Knight trilogy.
 
 Since its original mythology has already been well-trod through a large number of adaptations, the summary I’ll provide of its plot here will just be to outline key details that’ll be relevant to my later points. Following the end of the Trojan War, its hero Odysseus (played by Matt Damon) seeks to return home to Ithaca with his surviving subordinates after 20 years, encountering various tribulations along the way. Meanwhile, his wife Penelope (played by Anne Hathaway) fends off potential suitors for her hand in marriage and Ithaca’s throne with the help of her son Telemachus (played by Tom Holland).
 
-Despite the criticisms of its faded and unsaturated colour palette (which I wholeheartedly agree with), **The Odyssey** compensates for this ‘realism’ through its practical visual effects, which give the entire movie a genuinely epic feel. In particular, the monsters Polyphemus (the cyclops) and Scylla look as if
+Despite the criticisms of its faded and unsaturated colour palette (which I wholeheartedly agree with), The Odyssey compensates for this ‘realism’ through its practical visual effects, which give the entire movie a truly epic and grandiose feeling. In particular, the monsters Polyphemus (the cyclops) and Scylla look genuinely unsettling, almost as if they didn’t belong in this world in spite of their realistic textures. With fewer filmmakers turning to practical effects and CGI studios unable to deliver high-quality results due to chronically being overworked, achieving this level of uncanniness is something that I feel is getting harder and harder to do these days.
 
-(practical effects lend well to epic feeling, especially with how monsters actually looked unnerving, something hard to do these days, Nyongo and Page?, focus on cultural discourse, Sea Peoples, Bronze Age collapse)
+However, aside from being directed by Christopher Nolan, what garnered The Odyssey the most attention in today’s media-starved day and age is the cultural discourse it generated. The clearest example of this is through some of its casting choices, namely Lupita Nyong’o as Helen of Troy and Elliot Page as Sinon.
+
+(Nyongo and Page?, focus on cultural discourse, Sea Peoples, Bronze Age collapse)
 
 ## Cinematheque
 
