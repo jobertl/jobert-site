@@ -1,15 +1,17 @@
 ---
-title: "Title"
+title: "Leslie Cheung, Another Farewell, and Lunch at Four Seasons"
 date: 2026-09-18
 tags: update reflection review_baked
 ---
 
-# Title
+# Leslie Cheung, Another Farewell, and Lunch at Four Seasons
 
 **TL;DR:**
-- 
+- I commemorate a pop star’s 70th birthday at a museum
+- I wax poetic about Hong Kong
+- I have lunch at Four Seasons(?)
 
-![Collage for 2026-09-11](/assets/images/2026-09-11.JPG)
+![Collage for 2026-09-18](/assets/images/2026-09-18.JPG)
 
 ## Life Update
 
@@ -32,6 +34,8 @@ Now that I’m right on the cusp of leaving for another new country yet again, I
 Honestly, there’s still so much I want to say about Hong Kong, but I’m afraid it’ll have to wait for another time, or multiple times depending on how comfortable I am. But for now, it’s time to bid Hong Kong farewell, and I’ll see you next week in Manchester!
 
 ## Baked Pork Chop Rice Review
+
+![Baked pork chop rice for 2026-09-18](/assets/images/BPCR_2026-09-18.jpeg)
 
 OK, I may have technically lied in the title of this week’s post, since I didn’t actually eat baked pork chop rice at a Four Seasons hotel (or at a landscaping company, for the matter). Instead, I had it on the **17th** at a restaurant called Seasons Cafe in English, whose Chinese name translates to Four Seasons Restaurant, so I’m still being truthful here. Anyways, enough semantics here. Time for the actual review!
 
