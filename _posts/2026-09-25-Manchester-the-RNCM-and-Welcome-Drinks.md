@@ -1,15 +1,17 @@
 ---
-title: "Title"
+title: "Manchester, the RNCM, and Welcome Drinks"
 date: 2026-09-26
 tags: update review_baked
 ---
 
-# Title
+# Manchester, the RNCM, and Welcome Drinks
 
 **TL;DR:**
-- 
+- I finally arrived in Manchester
+- I began life at the RNCM
+- I eagerly participated in the UK’s boozing traditions
 
-![Collage for 2026-09-18](/assets/images/2026-09-18.JPG)
+![Collage for 2026-09-25](/assets/images/2026-09-25.JPG)
 
 ## Life Update
 
@@ -25,7 +27,11 @@ The **23rd** involved quite a bit of booze. Aside from singing Tuba Mirum to get
 
 After I made a quick stop by Manchester's iconic John Rylands Library in the morning of the **24th** due to being in the area, the alcohol continued to flow, as I drank some free prosecco during the RNCM principal's reception for students. Since UBC discontinued their longstanding tradition of giving new grads a complimentary glass of prosecco by. the time it was my turn, I'm glad to have finally had my rightfully-deserved sparkling wine.
 
+I had my first RNCM audition on the **25th** for November’s performance of Shostakovich’s Fifth Symphony, which will be under the direction of the conductor of Manchester’s Hallé orchestra. Since this is my favourite symphony, I wanted to pass the audition, even if I already had the chance to play it before during my undergraduate studies. Overall, apart from a particular area I fully anticipated to miss, I thought I did rather well, though it’ll be more than a few days before I’ll find out the results.
+
 ## Baked Pork Chop Rice Review
+
+![Baked pork chop rice for 2026-09-25](/assets/images/BPCR_2026-09-25.jpeg)
 
 Being served baked pork chop rice as an in-flight meal is perhaps the strangest context I've ever eaten it in, but that was exactly what happened to me during a flight I took with Cathay Pacific on the **19th** as part of my journey to Manchester. When I saw it on the menu, I knew I had to try it, so let's dig in and see if this mile-high dish can measure up to its ground-based original.
 
