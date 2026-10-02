@@ -11,7 +11,7 @@ tags: update
 - I learned how I did on my auditions to date
 - I went to Manchester's largest mall
 
-![Collage for 2026-09-25](/assets/images/2026-09-25.JPG)
+![Collage for 2026-10-02](/assets/images/2026-10-02.JPG)
 
 ## Life Update
 
@@ -27,8 +27,8 @@ The **29th** brought more bad news, as I learned that I didn't make the cut for 
 
 Auditions weren't the only place where my luck ran out that day, as while I finally got a bass sackbut, it was after my first sackbut ensemble class due to scheduling, so I had to play on my modern trombone during said class. To make matters worse, it didn't come with a mouthpiece, and I don't have a small shank mouthpiece to use for now. At least I'm finally back in the early music business!
 
-Since I had plenty of free time on the **30th**, I went to the Trafford Centre (think the Gold Coast but way bigger and indoors for Hong Kong-based readers and Metrotown but fancier for Vancouver-based readers) and had a pretty decent brunch at the Mardi Gras-themed Wetherspoons there (yes, I know the reputation 'Spoons has in the UK, but it was my first time at one, so cut me some slack) before continuing to explore it. Once I had my fill of this antiquity-themed shopping centre, I headed to the nearby Costco. Unfortunately, I didn't try the hotdog there, but I ate a beef chili jacket potato with cheese for dinner instead.
+Since I had plenty of free time on the **30th**, I went to the Trafford Centre (think the Gold Coast but way bigger and indoors for Hong Kong-based readers and Metrotown but fancier for Vancouver-based readers) and had a pretty decent brunch of three small plates at the Mardi Gras-themed Wetherspoons there (yes, I know the reputation 'Spoons has in the UK, but it was my first time at one, so cut me some slack) before continuing to explore it. Once I had my fill of this mostly antiquity-themed shopping centre, I headed to the nearby Costco. Unfortunately, I didn't try the hotdog there, but I ate a beef chili jacket potato with cheese for dinner instead.
 
-(Fun fact: The Trafford Centre is owned by the Canadian Pension Plan Investment Board)
+(Fun fact: The Trafford Centre is owned by the Canadian Pension Plan Investment Board.)
 
 **October 1st** was the day of the new student wind orchestra rehearsal, which is apparently an RNCM tradition designed to acclimate new students to how rehearsals are run here, me included. Still, aside from having to arrive 10 minutes prior to the stated rehearsal time (to ensure enough time to set up and warm up), it essentially functioned the same as rehearsals back at UBC. One thing that stood out to me was the lack of iPads and foot pedal page turners being used, most likely due to the UK's stricter rules on copying music I mentioned last week.
