@@ -7,9 +7,9 @@ tags: update
 # Brass Bands, Audition Results, and the Trafford Centre
 
 **TL;DR:**
-- I went to my first brass band concert
+- I attended my first brass band concert
 - I learned how I did on my auditions to date
-- I went to Manchester's largest mall
+- I went to Manchester's largest shopping centre
 
 ![Collage for 2026-10-02](/assets/images/2026-10-02.JPG)
 
