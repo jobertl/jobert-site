@@ -7,3 +7,4 @@ plugins:
 author : Jobert Leong
 description : Trombone, testimonies, and more.
 url : "https://jobert.tk08.ca"
+permalink: /:categories/:year/:month/:day/:title:output_ext
