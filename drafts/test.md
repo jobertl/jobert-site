@@ -12,9 +12,12 @@ Despite the criticisms of its faded and unsaturated colour palette (which I whol
 
 However, aside from being directed by Christopher Nolan, what garnered The Odyssey the most attention in today’s media-saturated day and age is the cultural discourse it generated. The clearest example of this is through some of its casting choices, namely Lupita Nyong’o as Helen of Troy and Elliot Page as Sinon. With their appearances going against ‘conventional’ depictions of their characters (Nyong’o’s Helen of Troy and Page’s Sinon), Nyong’o and Page certainly had no shortage of trouble in getting audiences to accept their depictions. However, I’d argue this works in their characters’ favour, and even enhances the narrative.
 
-Since Helen of Troy was the beauty that sparked the Trojan War (or in Nolan’s interpretation, merely used as an excuse by Agamemnon to seize control over trade routes), and was eventually scarred after it ended to prevent anyone else from laying their hands on her, Nyong'o's casting adds an extra layer to Helen of Troy's character, forcing audiences to confront what the ideal of beauty means just as much as Telemachus did when he first laid eyes on her.
+Since Helen of Troy was the beauty that sparked the Trojan War (or in Nolan’s interpretation, merely used as an excuse by Agamemnon to seize control over trade routes), and was eventually scarred after it ended to prevent anyone else from laying their hands on her, Nyong'o's casting adds an extra layer to Helen of Troy's character. Just as Telemachus was forced to confront the desecrated face of Troy when he first laid eyes on Helen, audiences were similarly made to evaluate their own idea of beauty, raising the question of what it truly means in this day and age.
+forcing audiences to confront the ideal of beauty just as much as Telemachus did when he first laid eyes on her.
 
-Similarly, Sinon (reluctant warrior, did his role)
+While Sinon was initially presented as a reluctant warrior, having been sent to the frontline as the result of a deception, he ultimately played the part of a loyal soldier to perfection by being sacrificed
+
+(reluctant warrior, did his role, Page not exactly having body type of 'manly man')
 
 (Nyongo and Page?, focus on cultural discourse, Sea Peoples, Bronze Age collapse)
 
