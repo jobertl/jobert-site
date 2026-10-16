@@ -1,10 +1,10 @@
 ---
-title: "Moving On, Curry, and Lunch with a View"
+title: "Moving On, Curry Night, and Lunch with a View"
 date: 2026-10-16
 tags: update new
 ---
 
-# Moving On, Curry, and Lunch with a View
+# Moving On, Curry Night, and Lunch with a View
 
 **TL;DR:**
 - Rejection motivated me to improve
