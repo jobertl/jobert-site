@@ -11,7 +11,7 @@ tags: update new
 - I had a curry night with the other RNCM trombonists
 - I saw the view of a lifetime while having lunch with an old friend
 
-![Collage for 2026-10-09](/assets/images/2026-10-09.JPG)
+![Collage for 2026-10-16](/assets/images/2026-10-16.JPG)
 
 ## New and Improved
 - Added sub-titles in **Life Update** to organise things
