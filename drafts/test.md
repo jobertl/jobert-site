@@ -15,7 +15,7 @@ However, aside from being directed by Christopher Nolan, what garnered The Odyss
 Since Helen of Troy was the beauty that sparked the Trojan War (or in Nolan’s interpretation, merely used as an excuse by Agamemnon to seize control over trade routes), and was eventually scarred after it ended to prevent anyone else from laying their hands on her, Nyong'o's casting adds an extra layer to Helen of Troy's character. Just as Telemachus was forced to confront the desecrated face of Troy when he first laid eyes on Helen, audiences were similarly made to evaluate their own idea of beauty, raising the question of what it truly means in this day and age.
 forcing audiences to confront the ideal of beauty just as much as Telemachus did when he first laid eyes on her.
 
-While Sinon was initially presented as a reluctant warrior, having been sent to the frontline as the result of a deception, he ultimately played the part of a loyal soldier to perfection by being sacrificed
+While Sinon was sent to the frontline as the result of deception, and started Odysseus' campaign as a reluctant warrior, his development into a shining example of the loyal soldier ultimately culminated in his sacrifice to keep the Trojan Horse ruse intact. With such a display of devotion frequently being reserved for the manliest of men, one would expect Sinon to have a physique that
 
 (reluctant warrior, did his role, Page not exactly having body type of 'manly man')
 
