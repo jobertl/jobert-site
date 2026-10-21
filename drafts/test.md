@@ -15,11 +15,11 @@ However, aside from being directed by Christopher Nolan, what garnered The Odyss
 Since Helen of Troy was the beauty that sparked the Trojan War (or in Nolan’s interpretation, merely used as an excuse by Agamemnon to seize control over trade routes), and was eventually scarred after it ended to prevent anyone else from laying their hands on her, Nyong'o's casting adds an extra layer to Helen of Troy's character. Just as Telemachus was forced to confront the desecrated face of Troy when he first laid eyes on Helen, audiences were similarly made to evaluate their own idea of beauty, raising the question of what it truly means in this day and age.
 forcing audiences to confront the ideal of beauty just as much as Telemachus did when he first laid eyes on her.
 
-While Sinon was sent to the frontline as the result of deception, and started Odysseus' campaign as a reluctant warrior, his development into a loyal soldier ultimately culminated in his sacrifice to keep the Trojan Horse ruse intact. With such a display of devotion often reserved for the manliest of men, one would expect Sinon to have an apperance that reflects modern society's ideal of masculinity, such as a beard or ripped muscles. Instead, Page has none of these traits, and this does make him look a bit out of place compared to his more well-built co-stars. This conversely
+While Sinon was sent to the frontline as the result of deception, and started Odysseus' campaign as a reluctant warrior, his development into a loyal soldier ultimately culminated in his sacrifice to keep the Trojan Horse ruse intact. With such a display of devotion often reserved for the manliest of men, one would expect Sinon to have an appearance that reflects modern society's ideal of masculinity, such as a beard or ripped muscles. Instead, Page has none of these traits, which does make him look out of place compared to his more well-built co-stars. This distinction conversely fits his role in the narrative of someone who wasn't meant to be on the front lines, yet performed his duty to the bitter end nonetheless, perfectly encapsulating how true heroes can emerge from the unlikeliest of bodies or minds.
 
-(fits role in narrative, shows how heroes can come from unlikely places)
+One last thing that struck me when watching the Odyssey was how Nolan weaved in mentions of the Sea Peoples, unorganised gangs of boat-borne marauders who roamed around the Mediterranean
 
-(Nyongo and Page?, focus on cultural discourse, Sea Peoples, Bronze Age collapse)
+(Sea Peoples, Bronze Age collapse)
 
 ## Cinematheque
 
