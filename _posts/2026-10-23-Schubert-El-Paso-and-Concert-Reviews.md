@@ -7,11 +7,11 @@ tags: update new review_concert
 # Schubert, El Paso, and Concert Reviews
 
 **TL;DR:**
-- My first RNCM project was Schubert's Unfinished Symphony
+- I played Schubert's Unfinished Symphony for my first RNCM project
 - Some American trombonists from El Paso visited the RNCM
 - Concert Reviews are finally a thing here
 
-![Collage for 2026-10-16](/assets/images/2026-10-16.JPG)
+![Collage for 2026-10-23](/assets/images/2026-10-23.JPG)
 
 ## New and Improved
 - Added **Concert Review** section
