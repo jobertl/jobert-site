@@ -1,28 +1,32 @@
 ---
-title: "Title"
-date: 2026-10-16
+title: "Schubert, El Paso, and Concert Reviews"
+date: 2026-10-23
 tags: update new review_concert
 ---
 
-# Title
+# Schubert, El Paso, and Concert Reviews
 
 **TL;DR:**
-- 
+- My first RNCM project was Schubert's Unfinished Symphony
+- Some American trombonists from El Paso visited the RNCM
+- Concert Reviews are finally a thing here
 
 ![Collage for 2026-10-16](/assets/images/2026-10-16.JPG)
 
 ## New and Improved
-- Added Concert Review section
+- Added **Concert Review** section
 
 ## Life Update
 
 ### Music Things
 
-I participated in my first project at the RNCM, which was an informal performance of Schubert's Unfinished Symphony with a Repertoire Orchestra (for UBC readers, think of it like Orchestral Readings with a performance aspect to it). Since Repertoire Orchestra projects are intended to give RNCM conducting students podium time while familiarising the rest of us with orchestral repertoire (hence their name), their entire 'cycle' (for lack of a better word, I'm borrowing UBC terminology again) from rehearsals to performance lasts around a week, which is shorter than other projects.
+I participated in my first project at the RNCM, which was an informal performance of Schubert's Unfinished Symphony with a Repertoire Orchestra (for UBC readers, think of it like Orchestral Readings with a performance aspect to it). Since Repertoire Orchestra projects are intended to give RNCM conducting students podium time while familiarising the rest of us with orchestral repertoire (hence their name), their entire 'cycle' (for lack of a better word, I'm borrowing UBC terminology again) from rehearsals to performance lasts around a week, so they are shorter than other projects.
 
-Even so, this lower-stakes project didn't mean us students were exempt from the RNCM's usual high standards, as we were helpfully reminded by a faculty member to prepare more thoroughly due to a lacklustre start in our first rehearsal, which included listening through the piece with a score and our parts. Since being ready to play through a piece flawlessly by the first rehearsal is the norm for musicians in British orchestras, the RNCM faculty expect us to meet this standard as well, especially as they already consider us to be on the level of professionals. While fully adjusting to this level of excellence will take a bit more time, I still managed to meet expectations along with the rest of the orchestra by the end of this rehearsal, but I'll definitely put in a lot more effort for the remainder of this project and future ones.
+Even so, this lower-stakes project didn't mean us students were exempt from the RNCM's usual high standards, as we were helpfully reminded by a faculty member to prepare more thoroughly due to a lacklustre start in our first rehearsal, which included listening through the piece with a score and our parts. Since being ready to play through a piece flawlessly by the first rehearsal is the norm for musicians in British orchestras, the RNCM faculty expect us to rise to this level as well, especially as they already consider us to be professionals. While fully adjusting to this standard of excellence will take a bit more time, I still managed to meet expectations along with the rest of the orchestra by the end of this rehearsal, but I'll definitely put in a lot more effort for the remainder of this project and future ones.
 
-Aside from devising exercises for excerpts in this week's studio class, the RNCM trombones also welcomed several guests from the University of Texas El Paso (UTEP), seeing as they were touring around the UK while being based in Leeds for a series of performances. After our regular studio time ended, almost all of us stayed behind to read through some trombone choir pieces with the UTEP trombones (including an arrangement of the 'march' movement from Tchaikovsky 6!), before having some beers at the RNCM bar. Even though I was based in North America up to a couple of months ago, I didn't work with many Texan trombonists during my time there, so this was a pretty good opportunity to get a glimpse into their unique musical culture. Of course, it goes without saying that they were *very* American as Texans, but the enthusiasm they brought to the RNCM was more than enough to smooth over any initial culture shock.
+The second and third rehearsals took place on the same day as the performance itself, which meant it was a rather busy day for me. Thankfully, the trombones don't do much playing in the Unfinished Symphony, though we do have some nice parts, so my chops weren't destroyed by all this 'playing'. With the performance itself being rather smooth, I'm happy to report I survived my first official RNCM concert (informal as it may be).
+
+Aside from devising exercises for excerpts in this week's studio class, the RNCM trombones also welcomed several guests from the US' University of Texas El Paso (UTEP), seeing as they were touring around the UK while being based in Leeds for a series of performances. After our regular studio time ended, almost all of us stayed behind to read through some trombone choir pieces with the UTEP trombones (including an arrangement of the 'march' movement from Tchaikovsky 6!), before having some beers at the RNCM bar. Even though I was based in North America up to a couple of months ago, I didn't work with many Texan trombonists during my time there, so this was a pretty good opportunity to get a glimpse into their unique musical culture. Of course, it goes without saying that they were *very* American as Texans, but the enthusiasm they brought to the RNCM was more than enough to smooth over any initial culture shock.
 
 ### Non-Music Things
 
