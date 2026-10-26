@@ -13,7 +13,7 @@ tags: update_special new
 
 ## Special Update
 
-Welcome to the first Special Update! As you may have guessed from the title and irregular posting time of this post, I’ll be making these updates whenever something out of the ordinary happens. In this case, it’s because I headed to the Royal Birmingham Conservatoire (RBC) on **October 24th and 25th** for the bi-annual British Trombone Festival, organised by the British Trombone Society (BTS).
+Welcome to the first Special Update! As you may have guessed from the title and irregular publishing time of this post, I’ll be making these updates whenever something out of the ordinary happens. In this case, it’s because I headed to the Royal Birmingham Conservatoire (RBC) on **October 24th and 25th** for the bi-annual British Trombone Festival, organised by the British Trombone Society (BTS).
 
 Ironically enough, I almost couldn’t make it to the festival because my train to Birmingham was cancelled on the morning of my departure on the **24th**. The one thing that saved me from having to spend money on another train or bus ticket last-minute was a new British government policy enacted just last month, which stated that ticketholders can ride any alternative train to their destination in the two hours before or after their original train if it was cancelled. Thanks to this, I was able to make it to Birmingham on time, albeit with an added transfer (my original train was direct).
 
