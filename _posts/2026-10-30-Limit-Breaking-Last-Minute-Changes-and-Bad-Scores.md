@@ -11,7 +11,7 @@ tags: update practice
 - I taught myself why last-minute changes are a bad idea
 - Faulty scores messed up sackbut rehearsal
 
-![Collage for 2026-10-23](/assets/images/2026-10-23.JPG)
+![Collage for 2026-10-30](/assets/images/2026-10-30.JPG)
 
 ## Life Update
 
