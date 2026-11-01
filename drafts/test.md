@@ -17,9 +17,7 @@ forcing audiences to confront the ideal of beauty just as much as Telemachus did
 
 While Sinon was sent to the frontline as the result of deception, and started Odysseus' campaign as a reluctant warrior, his development into a loyal soldier ultimately culminated in his sacrifice to keep the Trojan Horse ruse intact. With such a display of devotion often reserved for the manliest of men, one would expect Sinon to have an appearance that reflects modern society's ideal of masculinity, such as a beard or ripped muscles. Instead, Page has none of these traits, which does make him look out of place compared to his more well-built co-stars. This distinction conversely fits his role in the narrative of someone who wasn't meant to be on the front lines, yet performed his duty to the bitter end nonetheless, perfectly encapsulating how true heroes can emerge from the unlikeliest of bodies or minds.
 
-One last thing that struck me when watching the Odyssey was how Nolan weaved in mentions of the Sea Peoples, unorganised gangs of boat-borne marauders who roamed around the Mediterranean
-
-(Sea Peoples, Bronze Age collapse)
+Ultimately, my overall thoughts on The Odyssey can be summed up by this quote from The Economist's own review: "Every adaptation of an ancient text is as much about its own era as the original work; less a lens than a mirror". While this can definitely be seen in the responses to Nyong'o and Page's casting, I believe that The Odyssey's cultural commentary is most relevant when it frames Odysseus' journey home as the last hurrah of the legendary Bronze Age. With The Odyssey originating from oral tales about the Trojan War passed down after the Bronze Age collapse, a series of calamities that
 
 ## Cinematheque
 
