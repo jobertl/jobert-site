@@ -11,7 +11,7 @@ tags: update cinematheque
 - Robin Hood likes kids (no, not in that way)
 - My review of Christopher Nolan's The Odyssey is finally here
 
-![Collage for 2026-10-30](/assets/images/2026-10-30.JPG)
+![Collage for 2026-11-06](/assets/images/2026-11-06.JPG)
 
 ## Life Update
 
