@@ -1,6 +1,6 @@
 ## Book Club
 
-**The Invisible Hook** by Peter T. Leeson might be one of the strangest books I've recently read, mainly because it focuses on the unlikely relationship between two highly disparate subjects: pirates and economic principles.
+**The Invisible Hook** by Peter T. Leeson might be one of the strangest books I've recently read, mainly because it focuses on the unlikely relationship between two highly disparate subjects: pirates and economic principles. Despite how outlandish this premise may be,
 
 ## Cinematheque
 
