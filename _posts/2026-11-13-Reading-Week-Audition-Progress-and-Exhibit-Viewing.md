@@ -11,7 +11,7 @@ tags: update
 - My audition recording ended with an unexpected twist
 - I went to see some interesting exhibits around Manchester
 
-![Collage for 2026-11-06](/assets/images/2026-11-06.JPG)
+![Collage for 2026-11-13](/assets/images/2026-11-13.JPG)
 
 ## Life Update
 
@@ -24,6 +24,8 @@ The third session of recordings I did for an external programme's audition prove
 After listening to all four of my chosen takes a few more times later on, I ultimately decided to submit the take I didn't plan on choosing from the fourth recording session, since I thought it showed my highest level of musicality while being mostly consistent throughout. Now that I've submitted my audition application, I won't have to think about this programme anymore until mid-December, though I've still got another application video due in a couple weeks' time. Having learned a few things the hard way, I'll definitely work a lot smarter when recording the next round of videos, which includes employing some tips I picked up for my preparation process to ensure a better-quality final product.
 
 Seeing as I didn't attend the last Lancashire Sinfonia rehearsal (the external gig I mentioned in a previous post) due to no trombones being required, this week's rehearsal was the first I went to in a month. While I was previously informed we were rehearsing Dvorak's A Hero's Song this time, it wrapping up ahead of schedule meant we had time to play Tchaikovsky's Nutcracker Suite as well, which wasn't what I planned for or had rehearsed with the orchestra before. Even so, it was a joy playing a familiar piece once again.
+
+(Sidenote: I think my usual approach to writing posts made this section read quite weirdly, so I'll probably be experimenting with a new method next week. Stay tuned for updates!)
 
 ### Non-Music Things
 
