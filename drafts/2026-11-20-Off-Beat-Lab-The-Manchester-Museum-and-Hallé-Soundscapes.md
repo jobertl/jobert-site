@@ -1,13 +1,15 @@
 ---
-title: "TITLE"
+title: "Off-Beat Lab, The Manchester Museum, and Hallé Soundscapes"
 date: 2026-11-20
 tags: update practice review_concert
 ---
 
-# TITLE
+# Off-Beat Lab, The Manchester Museum, and Hallé Soundscapes
 
 **TL;DR:**
-- 
+- I participate in one of the RNCM's Off-Beat Labs
+- The Manchester Museum has some weird exhibits
+- The Hallé programmed an imagery-filled concert
 
 ![Collage for 2026-11-13](/assets/images/2026-11-13.JPG)
 
@@ -23,9 +25,9 @@ Thankfully, the faculty member in charge of the rehearsal offered all of us some
 
 Since I wasn't making progress as quickly as I hoped, I'd consider my lesson this week mostly a wash on my end, especially since I am concentrating on practicing audition material rather than the fundamentals that could improve my overall technique. Still, I did receive useful stylistic advice for interpreting said audition material, so I've got a better idea on how to execute it during my recordings.
 
-Conversely, trombone quartet practice went rather well this week, possibly because we had a two-hour session this time around instead of our previous one-hour sessions, which allowed us to cover and refine more material. Since we ultimately decided to play the Jacob Suite for Trombone Quartet for our coaching later this week, with it covering a lot of ensemble fundamentals, we spent our entire rehearsal polishing it and fixing our weak points.
+Conversely, trombone quartet practice went rather well this week, possibly because we had a two-hour session this time around instead of our previous one-hour sessions, which allowed us to cover and refine more material. Since we ultimately decided to play the Jacob Suite for Trombone Quartet for our coaching later this week, with it covering a lot of ensemble fundamentals, we spent our entire rehearsal polishing it and fixing our weak points. The coaching itself was rather standard, with our coach pointing out our most flawed areas and giving us pointers to fix them, with several cases even requiring direct intervention. With this external assistance, we were able to make quite a lot of progress, and should be able to polish up the suite in a couple more sessions.
 
-My first recording session for my second audition went about as well as I expected it to, as I came away with one workable recording and a better idea of how I want myself to sound.
+My first recording session for my second audition went about as well as I expected it to, as I came away with one workable recording and a better idea of how I want myself to sound. However, since my second session was shortly after my chamber coaching, my fatigue was apparent in my takes, though I did manage to walk away with two I thought could work.
 
 ### Music-Related Things
 
