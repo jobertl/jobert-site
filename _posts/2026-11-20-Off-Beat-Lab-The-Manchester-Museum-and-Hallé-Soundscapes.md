@@ -11,7 +11,7 @@ tags: update practice review_concert
 - The Manchester Museum has some weird exhibits
 - The Hallé programmed an imagery-filled concert
 
-![Collage for 2026-11-13](/assets/images/2026-11-13.JPG)
+![Collage for 2026-11-20](/assets/images/2026-11-20.JPG)
 
 ## Life Update
 
