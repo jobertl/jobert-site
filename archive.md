@@ -14,6 +14,9 @@ title: Archive
 <img src ="./assets/images/2025 Recital Poster.JPG" alt="2025 Recital Poster - Atlantic Zephyrs"/>
 <a href="assets/docs/Jobert Leong Recital 2025.pdf">Recital Programme</a>
 
+## External Reviews
+<a href="https://www.classicalsource.com/cd/a-hip-old-world-eroica-from-minasi-ensemble-resonanz/">Classical Source: A HIP, Old-World Eroica from Minasi & Ensemble Resonanz</a>
+
 # Miscellaneous
 [Vote Jobert - Jobert for MUSA President](/archive/vote.html)
 
