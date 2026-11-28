@@ -11,7 +11,7 @@ tags: update review_music
 - Rehearsals began for next week's wind ensemble concert
 - I'm a handsome guy!
 
-![Collage for 2026-11-20](/assets/images/2026-11-20.JPG)
+![Collage for 2026-11-27](/assets/images/2026-11-27.JPG)
 
 ## Life Update
 
