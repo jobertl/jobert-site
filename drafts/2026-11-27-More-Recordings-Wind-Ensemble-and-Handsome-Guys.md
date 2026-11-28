@@ -1,13 +1,15 @@
 ---
-title: "TITLE"
+title: "More Recordings, Wind Ensemble, and Handsome Guys"
 date: 2026-11-27
 tags: update review_music
 ---
 
-# TITLE
+# More Recordings, Wind Ensemble, and Handsome Guys
 
 **TL;DR:**
-- 
+- I finished the last batch of my audition recordings
+- Rehearsals began for next week's wind ensemble concert
+- I'm a handsome guy!
 
 ![Collage for 2026-11-20](/assets/images/2026-11-20.JPG)
 
@@ -19,6 +21,8 @@ In my third recording session for an external audition, I got three takes that I
 
 I had one of my busiest days since coming to the RNCM this week, where I basically did nothing but play the trombone. In the morning, I had a brass orchestral excerpt session with other student, which featured quite a lot of standard snippets I was already familiar with, though the notable exception was the intermezzo from Sibelius' Karelia Suite. Right after lunch was my first rehearsal for next week's wind ensemble concert, and not even preparing the repertoire beforehand could save me from how challenging it was in an actual rehearsal environment. To make matters worse (or better, depending on how you look at it), I was only playing in around half of the programme due to instrumentation requirements, and the other half was just as difficult if not more so. Thankfully, practically all of my time next week will be occupied with polishing up this repertoire. I capped off this day with an evening rehearsal with the Lancashire Sinfonia for their concert in a couple of days. If it wasn't for everything coming up, I would be glad to have a (short) break from playing the trombone once all this was over.
 
+The wind ensemble's subsequent brass sectional was mainly dedicated to fixing our weak spots, of which there were many. While we made a lot of progress, and will likely have everything sorted ahead of our guests' arrival next week, us trombones decided to have at least one more mini-sectional to go through our roughest parts. I also learned that I would be bumping (playing notes that would be awkward for a single player) in one more piece, so I'll be having a bit more fun, assuming my copy of the part gets to me in a timely manner.
+
 The focus of this week's private lesson was improving my articulation, mainly by reducing the overall weight of my tonguing. To that end, I enlisted the help of a modified set of exercises from the Arban book, which I'll almost certainly incorporate into my daily routine, since it does have the side effect of improving my tone colour as well.
 
 While studio class was another one with piano accompaniment, I came into it far less prepared than I intended for too many reasons, the vast majority of them being my own failings. As a result, I performed below my own expectations and received feedback along those lines, particularly on my recurring issues when playing. Still, I did learn some methods to fix them, along with gaining insight into the differences between British and (North) American trombone pedagogy.
@@ -28,6 +32,10 @@ The second and last Off-Beat Lab session for this project/cycle mainly focused o
 During that trombonist's undergrad, he was incredibly shy. His trombone teacher's solution? Tell him to take off his shirt in the middle of their lesson, look in the mirror, and yell "I'm a handsome guy!" (Note: This was at least 30 years ago. They could get away with stuff like that at music schools back then). With the trombonist being unwilling to do something so outrageous, his teacher did it first, giving the student enough motivation to do it himself. Lo and behold, shouting affirmations at the mirror while shirtless was what both teacher and student did for the rest of their lesson, and this proved to be so much of a confidence booster that this essentially kickstarted the trombonist's career.
 
 So next time you need to believe in yourself, look in the mirror (shirt optional) and yell "I'm a handsome guy!" (or your descriptor of choice). Who knows, perhaps that'll lead to you being an internationally-renowned trombonist one day.
+
+### Music-Related Things
+
+In a bit of good news, I made the RNCM's University Challenge team! For those of you who don't know, University Challenge is a TV quiz show where teams from British universities compete against each other, and is a rather popular series. I got onto the team by being one of the highest scorers on a trivia test organised by the RNCM's student union, though this is only the first step to actually appearing on TV, so I'll give out further updates about this whenever possible!
 
 ## Music Review
 
